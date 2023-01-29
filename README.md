@@ -1,1 +1,0 @@
-# kyonsato.github.io
